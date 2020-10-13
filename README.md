@@ -1,1 +1,0 @@
-# kagawa_ai_work
